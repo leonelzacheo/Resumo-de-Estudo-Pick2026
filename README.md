@@ -1,0 +1,1 @@
+# Resumo-de-Estudo-Pick2026
